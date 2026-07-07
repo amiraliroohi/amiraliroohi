@@ -1,1 +1,1 @@
-# Hi there, I'm Amirali Roohi 👋
+# Hi there, I'm Amirali Roohi
